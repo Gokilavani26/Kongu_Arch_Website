@@ -1,2 +1,2 @@
 click to view the webpages...
- https://gokilavani26.github.io/KSA_SAMP/
+ http://ksakongu.edu.in/
